@@ -1,4 +1,4 @@
-## Hi there sI'm Vignesh Manga👋
+## Hi there I'm Vignesh Manga👋
 
 
 
